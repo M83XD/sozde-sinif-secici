@@ -1,0 +1,1 @@
+# sozde-sinif-secici
